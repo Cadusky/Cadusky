@@ -10,7 +10,7 @@
 
 ###
 
-<img align="right" height="200" src="https://media.tenor.com/TCMWkxIkF9IAAAAj/dancing-gopher.gif"  />
+
 
 ###
 
